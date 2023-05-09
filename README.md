@@ -8,4 +8,4 @@ Repositório para envio da resolução da questão da prova A1.
 ## Minhas Informações:
 - Meu linkedin [LINKEDIN](https://www.linkedin.com/in/pedro-henrique-sousa-8721b4261/)
 ```Email para contato: pedrovlg7@gmail.com
-   Instagram: @pedro_hk77```
+   Instagram: @pedro_hk77
